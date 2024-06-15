@@ -1,1 +1,0 @@
-# umiya-global-sourcing
